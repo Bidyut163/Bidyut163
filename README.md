@@ -1,4 +1,5 @@
-![bidyut-github-header](https://github.com/user-attachments/assets/3d62144c-4bf8-499b-9a07-c6786878860c)
+![github-header-image](https://github.com/user-attachments/assets/9efd2bcc-ef43-413f-9ca5-55df7712e8cf)
+
 
 
 
