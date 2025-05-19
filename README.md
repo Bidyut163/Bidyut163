@@ -1,4 +1,5 @@
-## Hi there 👋I'm Bidyut Deka
+![github-header-image](https://github.com/user-attachments/assets/f866f6ec-bbe0-4fdf-b7ac-4bfe77c31720)
+
 
 
 # 💻 Tech Stack:
